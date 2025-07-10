@@ -1,0 +1,1 @@
+# astra-pro-wordpress-theme
